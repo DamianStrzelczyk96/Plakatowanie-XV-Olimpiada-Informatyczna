@@ -1,0 +1,1 @@
+# Plakatowanie-XV-Olimpiada-Informatyczna
